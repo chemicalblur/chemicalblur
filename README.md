@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=chemicalblur&style=flat&color=3A4E81&label=♪+years)
+![](https://komarev.com/ghpvc/?username=chemicalblur&style=flat&color=3A4E81&label=♪)
 ![til](https://files.catbox.moe/ayoysf.gif)
 
 
