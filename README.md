@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=chemicalblur&style=flat&color=3A4E81&label=♪)
+![](https://komarev.com/ghpvc/?username=chemicalblur&style=flat&color=3A4E81&label=♪) gif by @sunnymonnday on tumblr
 ![til](https://files.catbox.moe/kevjif.gif)
 
 
